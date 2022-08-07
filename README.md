@@ -199,7 +199,7 @@ Link de tinkercad: https://www.tinkercad.com/things/0qm74Ywn6h1-bodacious-bombul
 
 6. Video
 
-Link del video:
+Link del video: https://www.youtube.com/watch?v=CjczMY5bKBY&ab_channel=CristopherPaida
 
 7. Conclusiones
 
